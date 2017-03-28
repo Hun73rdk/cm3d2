@@ -1,0 +1,26 @@
+ぁ……ご主人様、いいよ……？　アタシのお尻に、ご主人様のチンポ、奥まで……っ、お客様は、気にしなくていいから……	§ ...... your husband like, you say ...? In the ass of Atashi, your husband like cock, Tsu ...... all the way, the customer, because the do not have to worry about ......
+ん……、アタシ、お客様二人なんて……っ、でも、ご主人様は、これがいいの……？　入ってないのに、熱くなってるぅ……	N ..., Atashi, customers two people Nante Tsu ..., but, my master is, ...... of this is good? But does not contain, it is hot roux ......
+んんぅ……んちゅ、ご主人様のチンポ、止めないで……っ、お客様がいるのに、アタシ……もっと動いて欲しくて、お尻ひくひくしてるの……	N'nu ...... Nchu, cock of your husband like, Tsu ... Do not stop, but our customers are, Atashi ... and want more moving, ...... of are twitching ass
+ん……ぅ、どうしたの……じゅる、ん……、ちょっと、疲れちゃった……？　アタシも、おしり、じんじんして……っ、んちゅ……	N ...... U, what was of ... Juru, I ..., hey, ...... you've tired? Atashi also, buttocks, and N personnel Tsu ......, Nchu ......
+んんぅ……んちゅ、ご主人様のチンポ、止めないで……っ、お客様がいるのに、アタシ……もっと動いて欲しくて、お尻ひくひくしてるの……	N'nu ...... Nchu, cock of your husband like, Tsu ... Do not stop, but our customers are, Atashi ... and want more moving, ...... of are twitching ass
+ん……ぅ、どうしたの……じゅる、ん……、ちょっと、疲れちゃった……？　アタシも、おしり、じんじんして……っ、んちゅ……	N ...... U, what was of ... Juru, I ..., hey, ...... you've tired? Atashi also, buttocks, and N personnel Tsu ......, Nchu ......
+んぅ……っ、ご主人様、焦らさ、ないで……っ！　おしり、せつなくて……っ、もっと、奥まで……チンポ、入れて……っ！	Nu Tsu ......, your husband like, Stop playing cat and mouse, Tsu ...... is not! Ass, painful and Tsu ..., more, ...... cock, put Tsu ...... all the way!
+ご主人様、んん……ちょっと、意地悪、しないで……っ、んく、手前、ばっかり……っ、だめ……っ、もっと、近くに……っ、んん……！	Husband like, do N ...... hey, mean, Tsu ...... not, link, front, just Tsu ......, Tsu useless ..., more, Tsu ...... near, do N ......!
+ぅ……ぁあ……っ、んく、おしりは、力抜けちゃうから……っ！　んん……、ご主人様……せめて、アソコにっ……！	U ...... Aa Tsu ..., link, the buttocks, the Tsu ...... because fall out power! I N ..., your husband like ... at the very least, Tsu over there ...!
+んん……ご主人様、待って……っ、そんなに早くするの、だめ……っ！　そこ、おしり、だからぁ……っ！　んん……！	I N ...... your husband like, wait Tsu ..., to so early, Tsu useless ......! There, the buttocks, so § Tsu ......! I N ...!
+んぅあっ、んっ！　ご主人様の、あついぃっ！　やっ、こんなのっ、おかしいのにぃっ、んくぅうっ！　んむぅっ！	Nua', N'! Of my master, Atsuii'! I am doing this for Tsu, Nyi' of funny, I Ugh KUU! Nmuu'!
+んんっ、んぁっ！　もう、アタシ、んむっ！　ご奉仕なんて出来ないよぉっ！　ぁあっ、待ってぇっ！　んぅううぁっ！	N'n', N'a'! The other, Atashi, Nmu'! Yoo' can not Nante your service! Aa', waiting Tsu want! N Uu Ua'!
+んぁ……れる、どうして、こんなことするの……？　んん……ご主人様は、こんなの……嫌じゃ、ないの……？	N'a ...... it is, why, ... to such a thing? I N ...... husband-like, such the ...... disgusting 's, of no ...?
+んん、くぁ、ご主人様の、奥までとどいてっ……、んっ……口の中、しょっぱい……っ！　んん……っ、くぷ……	I N, Kua, of your husband like, ...... went arrived to the back, in the N'...... opening, Tsu salty ......! I N Tsu ......, Kupu ......
+んぅ、くちゅ……んっ、アタシ、見られちゃってる……っ、こんなっ、無防備な格好で、んぅ、三人も……っ！	Nu, Kuchu ...... N', Atashi, Tsu ...... they've seen, Tsu this, in a defenseless dressed, Nu, also three people Tsu ......!
+ぁ……んっ、くぁ、待って、ご主人様……っ！　んっ、お客様の前で、感じたくないから……っ、んんっ！	§ ...... N', Kua, wait, Tsu ...... your husband like! N', in front of the customer, Tsu ...... do not want to feel, N'n'!
+んぅう……っ、んっ、見えないけど……ご主人様の、はっきりわかって……っ！　くぷっ、待って、そんな激しくしないで……！	Nuu Tsu ......, N', of ...... your husband like I do not look, Tsu ...... know clearly! Kupu', wait, ... not such violently!
+アタシ、こんなっ、んぅうっ！　んんっ！　何も出来ないのに、気持よくてっ、んむぅっ！　くぁあ……っ！	Atashi, Tsu this, Nuu'! N'n'! But can not do anything, it went well feeling, Nmuu'! Kuaa Tsu ......!
+んぅうっ、アタシっ、お客様に囲まれてぇっ、んんんっ！　お客様のにおいで、んぁ、口がっ、どろどろにっ、んくぁっ！	Nuu', Tsu Atashi, Tsu want surrounded by customers, N'n'n'! In your smell, N'a, mouth Therefore, Tsu to mushy, Nkua'!
+あっ、やだっ、んんっ！　ご主人様、ぁあっ、これ以上は、んちゅっ、おかしくなっちゃう……っ！　じゅる、んっ！	Oh, ya was, N'n'! Husband like, Aa', any more, Nchu', Tsu ...... that become funny! Juru, N'!
+んくぁっ、ぁああっ！　んじゅっ、もうだめっ、どこを突かれても、きもちよくてぇっ……！　んぅううっ……！	Nkua', Tsu Aa! N Ju', Tsu another useless, even if where the poked, comfortably want Tsu ......! N Uu Ugh ...!
+アタシ、もうっ、だめぇっ、んんっ！　ご主人様もっ、んぅうっ、いっぱいぃっ、だしてぇっ！　んんんっ、くぅぁあっ！	Atashi, another Tsu, but Mee', N'n'! With your husband like, Nuu', faction Ii', Tsu want soup! N'n'n', Kuaa'!
+んぅうっ！　んくっ、んぅああぁっ……！！　んぅっ、お客様も、ご主人様も、精液いっぱい……んん、まだ、出てる……っ、ん……	Nuu'! N Damn, Nua A'......! ! Nu', customers, nor your husband like, N do semen full ......, still, Tsu ...... you are out, I ...
+んぷっ、くぅっ、んあぁっ……！！　お尻と口だからって……んむ、そんないっぱい……っ、にがくて、いやなのに……っ、ん……	Npu', Ku', do Oh Tsu ......! ! ...... Nmu them because they're ass and mouth, such full Tsu ......, and bitter, Tsu ...... though unpleasant, I ...
+んぷぁっ、あっ、んぅううぅっ……！！　んっ！　ご主人様の精液、一番あついぃっ……、んっ！　別に、お尻なんだから、中でいいのに……	Npua', there, I Uu Uu Tsu ......! ! N'! Semen of husband-like, most mediation Ii' ..., N'! Separately, ... but because I'm an ass, good being
+ぷぁっ、んくっ、ふぁああぁ……！！　あっ、体にかけるの、やっ……！　ご主人様だけならまだしも、んん……っ、ちょっと……	Pua', I Damn, Faa Ah ...! ! Oh, hang on the body, doing ...! Madashimo If your husband like just, I N Tsu ..., hey ...
