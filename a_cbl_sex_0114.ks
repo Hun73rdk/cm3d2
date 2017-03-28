@@ -1,0 +1,26 @@
+ご主人様、じらしてるの……？　それとも、アタシのマンコ、興奮しない……？　ご主人様のチンポ、くれないの……？	Husband like, of that teasing ......? Or, pussy Atashi, not excited ...? Husband like cock, of not me ...?
+ぅ……ご主人、様……、お客様のは嫌だけど、ご主人様のは、来てほしいの……っ、しっかり、奥まで……っ、くっついて……！	U ...... husband, like ......, customers of the I hate, the husband-like, Tsu ...... of want to come, firmly, Tsu ...... all the way, stuck in ...!
+んん、ご主人様、どうしたの……？　くぷ、んっ……ご主人様のチンポの形がわかっていいけど……、もっと、動いて……っ！	I N, your husband like, of what the ...? Kupu, ... I hope you know the shape of a cock of N'...... your husband like, more, moving Tsu ......!
+ぅ……んっ、じゅる、止まらないで……っ、んん……っ、ご主人様に、もっと、してほしいの……っ、んぷ……んん……	U ...... N', Juru, Tsu ...... do not stop, do N Tsu ..., to your husband like, more, and Tsu ...... of want, amplifier ... I N ...
+んん、ご主人様、どうしたの……？　くぷ、んっ……ご主人様のチンポの形がわかっていいけど……、もっと、動いて……っ！	I N, your husband like, of what the ...? Kupu, ... I hope you know the shape of a cock of N'...... your husband like, more, moving Tsu ......!
+ぅ……んっ、じゅる、止まらないで……っ、んん……っ、ご主人様に、もっと、してほしいの……っ、んぷ……んん……	U ...... N', Juru, Tsu ...... do not stop, do N Tsu ..., to your husband like, more, and Tsu ...... of want, amplifier ... I N ...
+んっ、んん……っ、もっと、奥まで入るでしょ……？　焦らさないで……っ、アタシ、もっと、マンコで感じたいの……！	N', I N Tsu ..., more, ... I will go all the way? Stop playing cat and mouse not in Tsu ..., Atashi, more, you want to feel in the pussy ...!
+ぁ……んっ、ご主人様の、気持ちいいけど……んん……、もっと、激しくしてほしい……っ、じゅる、ん……っ、奥まで……っ！	§ ...... N', of your husband like, ... N do ... I feel good, more, Tsu ... that I want to violently, Juru, I Tsu ......, Tsu ... all the way!
+んぶ……お客様、ちゃんと洗った……？　んっ、ただでさえ嫌なんだから……っ、くんっ、ご主人様も、なに硬くしてるのよ……っ！	N Lovely Idol ...... customers, properly wash was ...? N', Tsu ...... because I hate even just, Kun', even your husband like, Tsu ...... gonna What are you doing hard!
+んんっ、んぶ……ぁ、そうやって脚、抱えられたら……っ、んくぁ……っ、ご主人様の体温が、伝わって……っ、んくぁ……	N'n', I Lovely Idol ...... §, legs doing so, Tsu ...... When you are faced, Nkua Tsu ..., the body temperature of the husband-like, transmitted by Tsu ......, Nkua ......
+んくぅっ、んっ、だめっ……！　そんな、気持ちいいところばっかり、じゅぅっ、こつこつしないでぇっ……！　んぷっ……！	N Tsu KUU, N', useless Tsu ......! Meanwhile, just a place feels good, Juu', diligently and not De Tsu ......! Npu' ......!
+ぷあっ、んっ、だめっ……！　そんな、されたら、んんぅっ、口の中まで、きもちよくなっちゃ……っ！　んんっ！	Pua', N', useless Tsu ......! Meanwhile, when you are, N'nu', up in the mouth, Tsu ...... is made comfortably! N'n'!
+んん……んぅ……っ、この格好は、嫌いじゃないけど……なんで、お客様まで……っ！　んんっ、変な味するぅ……っ！	I N ... Nu Tsu ......, this dress is ... why I do not hate, Tsu ... to you! N'n', strange taste to roux Tsu ......!
+んくっ、んぷ……ちょっと、しょっぱいかも……んんっ、ご主人様……、なんで、そんなにゆっくりなの……？　んぅっ……！	Damn N, pump ...... hey, salty be ...... N'n', your husband like ......, why, so much of the slow ...? Nu' ......!
+んんぁっ、くぷっ……！　咥えてると、変な顔になっちゃってるから……っ、ご主人様、見ないで……っ！　んぶ……	N'n'a', Kupu' ......! When are e mouth, Tsu ...... because they ended up with a funny face, your husband like, Tsu ...... Do not look! N Lovely Idol ......
+るぁっ、んくっ、ご主人様、脚持たないで……っ！　汗で、ぬるぬるして……んぅっ！　んん……！　ぷぁ……	Rua', you Damn, your husband like, Tsu ...... do not have legs! With sweat, slimy to ...... Nu'! I N ...! Pua ......
+んぅっ、んん……っ！　これ……っ、どうして、んぶぅっ、こんな深くまで、行っちゃうの……ぉっ？　ん……！	Nu', I N Tsu ......! This Tsu ......, why, I Buu Tsu, until this deep, of gone ...... O'? Hmm……!
+んぶっ、ぁお……っ、深すぎる……っ　ぷぁっ、変な声、でちゃう……んぁぅ……っ！　こんなの、おかしい……っ！　んくぅう……っ！	N Bukkake, Ao Tsu ......, Pua' Tsu ...... too deep, strange voice, ...... N'au Tsu ...... that will out! This for, Tsu funny ...! N intends KUU Tsu ......!
+おぁ、んん……っ！　ご主人様のも、お客様のも、あつい……っ、んんぅっ！　あっ、お腹、じんじんしちゃう……っ	Oa, I N Tsu ......! Also the husband-like, customers of also, Tsu hot ..., N'nu'! There, stomach, Jinjinshi Chau Tsu ......
+んんぅっ、突かれるたびにぃっ、体が熱いの……っ！　んん！　うぁ……なんか、変なところに当たってない……っ？	N'nu', every time Nyi', body Tsu hot of ...... to be caught! I N! Ua ...... something, Tsu ...... you do not hit the strange place?
+ぷあっ、だめっ、ちょっと……ゆるめて……っ！　んぶっ、じゅっ、奥が、壊れちゃうからぁっ……！　んぐ、んん〜〜っ！	Pua', useless Tsu, loosen a little ...... Tsu ......! N Bukkake, Ju', back is broken would Karaa' ......! Ing, I N Tsu ~ ~!
+んっ、じゅる……っ、口の中の、膨らんでっ……！　ん、んぁ……っ、ご主人様も、そろそろっ……、イっちゃいそう……？　んんんっ！	N', Juru Tsu ..., in the mouth, swollen by going ...! N, N'a Tsu ..., your husband like also, soon Tsu ..., said Chaimasu likely ...? N'n'n'!
+んぅっ、んぷっ、くぅうう……っ！！　んん……ご主人様の精液、まだ出て……っ、お客様より、いっぱい出てる……？	Nu', Npu', Tsu KUU uhh ...! ! It N ...... your husband like semen, still Tsu ...... out, from the customer, has come full ......?
+んぷっ、んんっ、んぅううう……っ！！　んっ、すごい、でてる……っ、アタシは、んん、ご主人様だけがよかったけど……ま、いっか……	Npu', N'n', I Uu uhh Tsu ......! ! N', wow, Tsu ...... you are out, Atashi is, I N, or ...... but only my master was good, monohydric ......
+ぷぁっ、んんっ、くぅううぅっ……！！　ん……ご主人様のチンポ、まだビクビクしてる……、この格好、そんなにいい？　それとも、アタシがお客様の舐めてたから……？	Pua', N'n', intends KUU UU Tsu ......! ! N ...... your husband like cock, ... you are still scared, dressed like this, so much good? Or, ... because Atashi was licking of customers?
+くぷぅっ、ひぁっ、んんぅうう……っ！！　ぁ……体中、あついよ……っ、ご主人様、次は、中に……っ、入れてほしい……ん……	Kupuu', Uu intends Tsu ...... Hia', I N! ! In § ...... body, Tsu ......'m hot, my master, the next step is ... Tsu, put hope ... N ... in

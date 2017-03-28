@@ -1,0 +1,26 @@
+う……ん、ほんとに、アナルに入れるの……？　べ、別にいいけど……、前のほうが、気持ちいいと思う……っ、アタシは……	Hmm ..., really, to put in anal ...? Downy, ...... but apart from good, is better before, Tsu ...... think that feels good, Atashi is ......
+ん……ご主人様、このまま、お客様のもご奉仕するの……？　なんか、変なにおいがして……どうせなら舐めるのもご主人様が、いいな……	N ...... your husband like, this remains, ...... customer's also for your service? Somehow, even licking if ...... anyway with a strange smell my master is, say Do ......
+んんぅ……んく、ご主人様のチンポの形、はっきりわかるよ……っ、ん、動いて、ほしい……？　んぷ、もう少し、このまま……	N'nu ...... link, your husband like the cock of the form, you can see clearly Tsu ..., I, moving, want ...? Pump, a little more, ... this remains
+んちゅ、んん……っ、アタシも、動きたいけど……っ、はっ……力が、抜けちゃって……っ、ちょっと、待ってね……？　んん……	Nchu, I N Tsu ......, Atashi also, Tsu ... I want to move, ha ha ...... force, Tsu ...... gone missing, Hey, wait I have ...? I N ......
+んんぅ……んく、ご主人様のチンポの形、はっきりわかるよ……っ、ん、動いて、ほしい……？　んぷ、もう少し、このまま……	N'nu ...... link, your husband like the cock of the form, you can see clearly Tsu ..., I, moving, want ...? Pump, a little more, ... this remains
+んちゅ、んん……っ、アタシも、動きたいけど……っ、はっ……力が、抜けちゃって……っ、ちょっと、待ってね……？　んん……	Nchu, I N Tsu ......, Atashi also, Tsu ... I want to move, ha ha ...... force, Tsu ...... gone missing, Hey, wait I have ...? I N ......
+んん、んっ……アナルは、入り口が一番いいらしいから……っ、んっ、ご主人様、チンポ気持ちいい……？　あ、すごっ……！	I N, N'...... anal, Tsu ... because seems to say the entrance is the best, N', your husband like, cock feels good ......? Oh, Sugo' ......!
+ご主人様……っ、んん、アタシ、ちゃんと気持ちよくできてる……？　もっと、んく、深くしたほうがいい……？　んっ……！	Tsu ...... your husband like, N I, Atashi, properly and can comfortably ...? More, link, ... better to deeply is good? N'......!
+んぅ……ぅ、なんで、お尻に……っ、ぁあ……んちゅ、集中、できな……っ、じゅっ、んぅぁ……っ、だめ……！	Nu ...... U, why, Tsu ... in the ass, Aa ...... Nchu, concentration, can Do Tsu ......, Ju', Nwa Tsu ......, useless ...!
+んぅ……んちゅ、お尻は……んっ、ちょっと苦しいから、ぁ……っ、そんなに、大きくしないで……っ、んん……！	Nu ...... Nchu, ass ...... N', because a little painful, § Tsu ..., so much, Tsu ...... not increase, do N ......!
+ご主人、様、んぅっ！　奥がっ、んむぅっ、れるっ、じんじん、してぇっ！　ぅんんっ、だめっ、気持ちよく……んぅうううっ！	Husband, like, Nu'! Back Therefore, Nmuu', Tsu is, Jin Jin, and Tsu want! Un'n', useless Tsu, N comfortably ...... Uu Uu'!
+んぅっ、ぁ、ひぅっ！　こんなっ、気持ち良すぎてっ、ご奉仕なんて、ぅうぁっ！　んんぅっ、むりぃっ！　んんんっ！	Nu', §, Hiu'! This Tsu, went too comfortably, Nante your service, Uua'! N'nu', Muryi'! N'n'n'!
+んくぁっ、んん……！　ちょっと……っ、動いてると、んん、咥えにくくて……っ！　んっ、ちゅる……	Nkua', do N ......! Hey Tsu ......, and running, N I, Tsu ... and less likely suck! N', Churu ......
+んん……っ、んく、ねえ、ご主人様……？　これって、良いの……？　アタシ、あんまり……動けてないよ？　んぁ……	I N Tsu ..., link, hey, your husband like ...? What this, of good ...? Atashi, do not move so much ...? N'a ......
+こんな、ちゅぷ、ん……っ、変態みたいなの……っ！　仕事じゃ、なかったら……、んんっ……じゅる……	This, Chupu, I Tsu ......, Tsu ...... of transformation like a! Work Well, If it were not ..., N'n' ...... Juru ......
+ぁく、んん……っ、ちょっと、ご主人様も何かしてよ……っ、ぅあ……っ！　結構、大変なんだから……	Aku, I N Tsu ..., hey, your husband like also Tsu ...... you have to do something, Ua Tsu ......! Fine, because it's a very ......
+あむ、んく……っ、んっ！　こんな、恥ずかしい格好で……っ、ぁ、奥に、当たる……っ！　んむぅぅ……っ！	Amu, link Tsu ..., N'! This, Tsu ...... in embarrassing looking, §, Tsu in the back, hit ......! Nmuwu Tsu ......!
+んちゅ、んんっ……！　ぁあ……っ、この格好、気持ちいいところに……んんっ、当たりやすい……っ、んぁっ！	Nchu, N'n' ......! Aa Tsu ......, dressed like this, ...... N'n', Tsu ...... easy to hit the place feels good, N'a'!
+んむぅっ、くうぁっ、ぷぁっ！　ご主人様も、んっ！　してっ！　んく、アタシだけじゃ、じゅっ、うまく動けない、んぅうっ！	Nmuu', Kua', Pua'! Even your husband like, N'! Shite'! Link, just Atashi, Ju', not move well, Nuu'!
+っぁ、んぅっ！　口の中が、じゅる、気持ち悪いのにっ、ぁあっ！　じんじんしてぇっ、んぅううっ！	'a, Nu'! In the mouth, Juru, feeling bad Noni', Aa'! Tsu want to N Human Resources, I Uu Ugh!
+ぅむ、んぁっ、んぅうっ！　顎が、びりびりしてぇっ！　息苦しくて、んっ！　ぁ、きもち、いいよぉっ！　くぁあっ！	Umu, N'a', Nuu'! Jaw, Tsu want to rattling! Stuffy and, N'! §, feelings, good Yoo'! Kuaa'!
+くぁあっ、ん、ふぁあっ！　んぷっ、もう、ご主人様も、ダメっ？　いいよっ、ぁあ、んっ！　お客様もぉっ、んんぅっ！	Kuaa', I, Faa'! Npu', and the other, your husband like also, Dame'? Iiyo', Aa, N'! Customers Geez Tsu, N'nu'!
+きゅうっ、んぅっ、ああっ……！！　はぁ……っ、ご主人様の精液、いっぱい……っ！　お客様も、お尻、気持ちよかった……？	Old Tsu, Nu', aak ......! ! Huh Tsu ..., semen of your husband like, Tsu full ......! Customers also, ass, was comfortable ...?
+んんっ、くぁっ、ぁああっ……！！　あっ、んぅ……っ、溢れちゃう……、ご主人様の、すごかったよ……？　でも、今度は二人で……	N'n', Kua', Aa Tsu ......! ! There, Nu Tsu ..., overflowing would ..., of your husband like, I was amazing ...? But, this time ...... with two people
+んんっ、あっ、んぅあああっ……！！　ご主人様の精液、お腹の上流れてる……っ、お客様のより、多いよ……？　いっぱい、興奮した……？	N'n', there, Nuaa there ...! ! Semen of your husband like, Tsu ...... flowing on top of the stomach, customers more of, I often ...? Full, excited ...?
+んっ、ぁあっ、ふぁあああぁ……！！　んん……別に、中でも良かったんだけどね……、んん……こんなに、濃いの……中に入ってたら、どうなったんだろ……？	N', Aa', file Oh Oh ...! ! I N ... Apart from, among others But you know what? Good thing I ..., I N ... so, when I went in the dark of ..., wonder what happened ...?

@@ -1,0 +1,26 @@
+ど……どうしたの……？　なんで、そんなじっと見てるの……？　こ、このまま、やめる……？　三人なんて、やっぱり変よ……	Throat ... What was of ...? Why, ... of looking like that still? This, this remains, quit ......? Three people Nante, still funny I ......
+い……入れるなら、早くして……っ、お客様のが、ずっと目の前にあるのは……っ、ねえ……ご主人様、どうしたの……？	If you have put in ..., Tsu ... and fast, customers of is, much there in front of the eyes Tsu ..., Hey ... your husband like, of what the ...?
+んっ……ちゅる、ご主人様……？　アタシは、大丈夫だから……っ、意外と、この体勢、つらくないから……ん、ふ……ぅ、ぁ……	N'... Chul, your husband like ...? Atashi is, Tsu ...... because it is all right, surprisingly, this posture, N ...... because not painful, Fu ...... U, § ......
+ちょっと、ご主人様……？　そんな、急にやめられると……っ、んく、お客様の変な味が、わかっちゃうから……っ、んぷ……	Hey, your husband like ...? Meanwhile, Tsu ...... and it is suddenly quit, link, your strange taste, Tsu ...... since become known, amplifier ......
+んっ……ちゅる、ご主人様……？　アタシは、大丈夫だから……っ、意外と、この体勢、つらくないから……ん、ふ……ぅ、ぁ……	N'... Chul, your husband like ...? Atashi is, Tsu ...... because it is all right, surprisingly, this posture, N ...... because not painful, Fu ...... U, § ......
+ちょっと、ご主人様……？　そんな、急にやめられると……っ、んく、お客様の変な味が、わかっちゃうから……っ、んぷ……	Hey, your husband like ...? Meanwhile, Tsu ...... and it is suddenly quit, link, your strange taste, Tsu ...... since become known, amplifier ......
+んん……く、んぅ……っ、もっと、奥までしてよ……っ、ご主人様の姿、見えないんだから……っ、ちゅる……、んん……！	I N rather than ..., Nu Tsu ......, ...... more, and as far as it will go and I Tsu ......, appearance of your husband like, Tsu ... because I do not see, Chul ..., I N!
+じゅっ、んん……！　そんな、浅いところばっかり……！　奥が、せつないから……っ、もっと、来て……、くぷ……っ	Ju', do N ......! Meanwhile, shallow place only ......! Back is, Tsu ...... because painful, more, come ..., Kupu Tsu ......
+ぶ、じゅ……ぁ、入口のとこ、こすれて……っ！　ん、んぅっ……もっと、ゆっくりぃ……っ！	Lovely Idol, tree ...... §, the entrance of the Toko, rubbing in Tsu ......! N, Nu' ...... more, Yukkuryi Tsu ......!
+んぶ……お客様、ちゃんと洗った……？　んっ、ただでさえ嫌なんだから……っ、くんっ、ご主人様も、なに硬くしてるのよ……っ！	N Lovely Idol ...... customers, properly wash was ...? N', Tsu ...... because I hate even just, Kun', even your husband like, Tsu ...... gonna What are you doing hard!
+んんっ、ぷぁあ……っ！　んっ、ご主人様、脚持って、おもいっきりしないでぇ……っ、んぶっ！　中が、おかしくなるぅっ……！	N'n', Puaa Tsu ......! N', husband-like, with legs, De Tsu ...... not full blast, it Bukkake! The middle is, funny Naru Tsu ......!
+んくぅっ、んっ、だめっ……！　そんな、気持ちいいところばっかり、じゅぅっ、こつこつしないでぇっ……！　んぷっ……！	N Tsu KUU, N', useless Tsu ......! Meanwhile, just a place feels good, Juu', diligently and not De Tsu ......! Npu' ......!
+ぉあ……んっ……ちゅっ、お客様のを咥えながらは、んっ……！　離して……っ！　いやぁ、なんでこんな……んぐぅうっ……！	Oa ...... N'... smack, while customers of the e mouth, N'......! Apart Tsu ......! Well, why this ... ing Uu' ......!
+なんで、んぶっ、こんなこと……っ、息が苦しい……っ、んぐぅっ……三人でなんて……っ、ふつうじゃ、ないのに……っ！	Why, I Bukkake, such a thing Tsu ......, breath Tsu painful ..., Tsu ...... Nante in Nguu' ...... three people, Tsu ...... but usually'm, no!
+んん……！　ぷぁっ、脚、広げないで……っ、んっ、恥ずかしいところが、見えちゃうから……っ！　んぁ……っ	I N ...! Pua', legs, Tsu ...... not spread, N', embarrassing place is, Tsu ...... because would seem! N'a Tsu ......
+うぷっ、んっ、そんな深いところばっかり……攻めるの、だめぇっ……！　んくっ、気持ち良い所に、当たっちゃう……っ！	Upu', N', the attack ... just such a deep place, but Mee' ......! N Damn, in pleasant place, Tsu ...... that would hit!
+んんっ、じゅっ、よだれが、垂れちゃう……っ、じゅるっ、ん……っ、見ないでぇ……っ、ん……っ！	N'n', Ju', drool is, Tsu ...... that would sag, Juru', I Tsu ..., De Tsu ...... you do not see, do Tsu ......!
+んぁ……んくっ、口の中、どろどろになって……っ、んんぅっ！　んっ！　そんなに、強く打ち付けちゃだめぇっ……！	Damn N N'a ......, in the mouth, Tsu ...... become mushy, N'nu'! N'! So much, strongly striking is Damee' ......!
+んぷぅっ……入り口が、広がって……っ、んんっ……！　ちょっと、止めてよ……奥まで届いちゃうから……っ、んくぅ……っ！	Npuu' ...... entrance, spread Tsu ......, N'n' ......! Hey, Tsu ...... because would arrive until ...... back I stopped, I Tsu KUU ......!
+んっ、うぁっ、くぅっ、息が……苦しくてっ……！　んぅっ、なんで、体がぞくぞくするのっ……？　嫌なだけなのに……っ！	N', Ua', Ku', breath went painful ...... ......! Nu', why, Tsu the body is thrilled ...? Tsu ...... I just disgusting!
+んっ、うっ、ううっ！　もう、いいでしょっ、終わりに……っ！　おぷっ、むりぃっ……！　においで、おかしくなるぅ……！	N', Ugh, Uu'! The other, Tsu might be good, Tsu ...... at the end! Opu', Muryi' ......! Smell, funny Naru ......!
+んっ、ぶぅっ、もうだめっ！　んっ、ご主人様、いかせてぇっ……！　うっ、お客様のも、大きくなって……っ！	N', Buu', Tsu another useless! N', your husband like, squid not want Tsu ......! Ugh, the customer's also, Tsu ...... larger!
+んんっ、くんっ、んぅううう……っ！！　ん……口も、マンコも、んぅ、精液で……っ、変な味、する……っ、んん……はぁっ……	N'n', Kun', I Uu uhh Tsu ......! ! N ...... opening also, pussy also, Nu, semen in Tsu ......, strange taste, to ...... Tsu, I N ... huh ...
+んむっ、うぁ、んんんぅうう……っ！！　うぁ……んん、口の中じゅう、どろどろして……んっ、これ、だひて、いい……？	Nmu', Ua, N'n'n Uu intends Tsu ......! ! Ua ...... do N, medium throughout the mouth, mushy to ...... N', this, Dahite, say ...?
+ぷぁっ、んっ、んぅうう……！！　ぁ……体中、ご主人様とお客様の精液で……んん、あったかい……、気持ちよかった……？	Pua', N', I Uu intends ......! ! § ...... body in, N do ...... with my master and your semen, warm ......, was comfortable ...?
+うぷぁっ、ぁ、んぁああ……っ！！　ん……ご主人様は、中でも良かったけど……、アタシも、アソコがヒクヒクしてる……	Upua', §, N'aa Tsu ......! ! N ...... husband-like, ... I was among them good, Atashi also, ...... that convulsion is dick
